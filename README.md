@@ -2,4 +2,4 @@ Discover unbeatable deals on Tipsy Lingerie with our exclusive Offers tab! Eleva
 
 Don’t miss out on our special offers, including the Bra Combo Pack of 3, perfect for stocking up without breaking the bank. Our collection also includes essential styles such as Yoga Bras, Sports Bras, Regular Bras, and Bra Without Hooks for everyday comfort. For those looking for something special, check out our Push Up Bras, Bras with Underwire, and Bras Without Straps.
 
-Shop our Sexy Lingerie and Briefs, all designed to provide ultimate comfort and style. Whether you're shopping for a Bra Myntra look or looking for a Bra with Bra Straps that match your outfit perfectly, Tipsy Lingerie has you covered. Visit the Offers tab on tipsy.in now to grab these hot deals before they’re gone!
+Shop our Sexy Lingerie and Briefs, all designed to provide ultimate comfort and style. Whether you're shopping for a Bra Myntra look or looking for a Bra with Bra Straps that match your outfit perfectly, Tipsy Lingerie has you covered. Visit the Offers tab on [tipsy.in](https://tipsy.in/) now to grab these hot deals before they’re gone!
